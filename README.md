@@ -1,1 +1,0 @@
-# NoProfit-sol
